@@ -1,1 +1,1 @@
-# paws-and-smilefoundation
+# PAWS AND SMILE FOUNDATION
